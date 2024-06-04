@@ -9,3 +9,4 @@
 **Juny 2024**
 * [Complicitat d'institucions i corporacions amb vincles amb la UPF](https://upfxpalestina.github.io/docs/entitats.pdf)
 * [Comunicat de demandes al Consell de Govern de la UPF](https://upfxpalestina.github.io/comunicat-2024-06-03/)
+* [Comunicat després del Consell de Govern de la UPF](https://upfxpalestina.github.io/comunicat-2024-06-04/)
