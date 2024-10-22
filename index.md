@@ -11,3 +11,6 @@
 * [Comunicat de demandes al Consell de Govern de la UPF](https://upfxpalestina.github.io/comunicat-2024-06-03/)
 * [Comunicat després del Consell de Govern de la UPF](https://upfxpalestina.github.io/comunicat-2024-06-04/)
 * [Event: Occupation, Apartheid & Genocide](https://upfxpalestina.github.io/event-2024-06-14/)
+
+**Octubre 2024**
+* [Film Screening: Where Olive Trees Weep](https://upfxpalestina.github.io/event-2024-10-24/)
