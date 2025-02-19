@@ -19,5 +19,5 @@
 * [Conferència: Colonialism, genocide, and climate change 
  Connecting oppressive systems and liberation struggles with planetary health in Palestine and beyond](https://www.colonialism-climate.com)
 
-**Febre 2025**
+**Febrer 2025**
 * [Event: Critical Mapping and Visualization of Israel’s War on Lebanon: Insights from The Beirut Urban Lab](https://upfxpalestina.github.io/event-2025-02-24/)
