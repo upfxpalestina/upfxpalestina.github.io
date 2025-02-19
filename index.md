@@ -14,3 +14,10 @@
 
 **Octubre 2024**
 * [Film Screening: Where Olive Trees Weep](https://upfxpalestina.github.io/event-2024-10-24/)
+
+**December 2024**
+* [Conferència: Colonialism, genocide, and climate change 
+ Connecting oppressive systems and liberation struggles with planetary health in Palestine and beyond](https://www.colonialism-climate.com)
+
+**Febre 2025**
+* [Event: Critical Mapping and Visualization of Israel’s War on Lebanon: Insights from The Beirut Urban Lab](https://upfxpalestina.github.io/event-2025-02-24/)
