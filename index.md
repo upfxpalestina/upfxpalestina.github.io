@@ -26,3 +26,6 @@
 
 **Febrer 2025**
 * [Event: Critical Mapping and Visualization of Israel’s War on Lebanon: Insights from The Beirut Urban Lab](https://upfxpalestina.github.io/event-2025-02-24/)
+
+**Març 2025**
+* [Event: Israeli Apartheid in Palestine; Film screening and discussion](https://upfxpalestina.github.io/event-2025-03-20/)
