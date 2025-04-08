@@ -20,7 +20,7 @@
 * La cuestión palestina: Gaza, un análisis antes y después del 7 de octubre de 2023
 * Legitimating State Ideology and Actions in Israeli Textbooks
 
-**December 2024**
+**Desembre 2024**
 * [Conferència: Colonialism, genocide, and climate change 
  Connecting oppressive systems and liberation struggles with planetary health in Palestine and beyond](https://www.colonialism-climate.com)
 
@@ -29,3 +29,7 @@
 
 **Març 2025**
 * [Event: Israeli Apartheid in Palestine; Film screening and discussion](https://upfxpalestina.github.io/event-2025-03-20/)
+
+**Abril 2025**
+* [Event: Between Reality and Documentary: A Historical Representation of Gaza Refugees in Colonial, Humanitarian and Palestinian Documentary Film](https://upfxpalestina.github.io/event-2025-04-28/)
+* [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-04-29/)
