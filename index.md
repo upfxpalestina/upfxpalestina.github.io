@@ -30,6 +30,6 @@
 **Març 2025**
 * [Event: Israeli Apartheid in Palestine; Film screening and discussion](https://upfxpalestina.github.io/event-2025-03-20/)
 
-**Abril 2025**
-* [Event: Between Reality and Documentary: A Historical Representation of Gaza Refugees in Colonial, Humanitarian and Palestinian Documentary Film](https://upfxpalestina.github.io/event-2025-04-28/)
-* [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-04-29/)
+**Maig 2025**
+* [Event: Between Reality and Documentary: A Historical Representation of Gaza Refugees in Colonial, Humanitarian and Palestinian Documentary Film](https://upfxpalestina.github.io/event-2025-05-14/) (rescheduled from 28 April due to power cuts)
+* [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-04-29/) (rescheduled from 28 April due to train disruptions; new date to be announced soon)
