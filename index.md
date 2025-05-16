@@ -32,4 +32,7 @@
 
 **Maig 2025**
 * [Event: Between Reality and Documentary: A Historical Representation of Gaza Refugees in Colonial, Humanitarian and Palestinian Documentary Film](https://upfxpalestina.github.io/event-2025-05-14/) (rescheduled from 28 April due to power cuts)
-* [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-04-29/) (rescheduled from 28 April due to train disruptions; new date to be announced soon)
+
+**Juny 2025**  
+* [Event: Twin book talks - War Remains and Master Peace](https://upfxpalestina.github.io/event-2025-06-02/) 
+* [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-06-10/) (rescheduled from 29 April due to train disruptions)
