@@ -36,3 +36,6 @@
 **Juny 2025**  
 * [Event: Twin book talks - War Remains and Master Peace](https://upfxpalestina.github.io/event-2025-06-02/) 
 * [Event: Palestina des de dins: Històries de colonització i resistència, de la Nakba al genocidi de Gaza](https://upfxpalestina.github.io/event-2025-06-10/) (rescheduled from 29 April due to train disruptions)
+
+**Novembre 2025**
+* [Event: Gaza - The Story of a Genocide](https://upfxpalestina.github.io/event-2025-11-14/)
